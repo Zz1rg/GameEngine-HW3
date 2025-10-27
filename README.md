@@ -14,3 +14,10 @@ https://github.com/user-attachments/assets/ceee215c-38ef-4c98-a88e-b55cab40d2b3
 
 https://github.com/user-attachments/assets/0fe791b3-e587-4e20-98ac-1615ab6e4e88
 
+---
+
+**Credits**
+
+Chibi: "A chibi style character wearing a blue-green jac" (https://skfb.ly/pruDR) by klrxyz is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+
+"Maze Grass Wall by CMJ'S ART" (https://skfb.ly/ozPFw) by CMJ'S ART is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
