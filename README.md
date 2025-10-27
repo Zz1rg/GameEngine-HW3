@@ -10,3 +10,7 @@
 
 https://github.com/user-attachments/assets/ceee215c-38ef-4c98-a88e-b55cab40d2b3
 
+**Full Gameplay**
+
+https://github.com/user-attachments/assets/0fe791b3-e587-4e20-98ac-1615ab6e4e88
+
